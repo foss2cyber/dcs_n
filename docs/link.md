@@ -1,1 +1,1 @@
-[dynamic link](https://wormhole.app/aRZmdM#M1wz4THzJDUVENoyAeTTMA) 👉
+[dynamic link](https://wormhole.app/qzN5bn#_zPM_5duDWbpZ2HSl4zn4Q) 👉
